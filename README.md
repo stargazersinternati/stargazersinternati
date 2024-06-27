@@ -1,10 +1,12 @@
 - 👋 Hi, I’m @stargazersinternati
+- 🪙 Coinbase Wallet:                       Stargazersinternati.eth
 - 👀 I’m interested in Environmental Agendas,
      Business and Economic Devlopment
-- 🌱 I’m currently learning to stay organized 
+- 🌱 Learning to stay organized 
      and disciplined to see the fruition of my endeavors.
 - 💞️ I’m looking to collaborate on Environmental,
      Business and Economic Projects.
+- 🎶 I also do Music! As an artist I rap and sing... I am unreleased, but I have enough songs to do an album.
 - 📫 How to reach me @ stargazersinternati.eth@gmail.com ...
 
 <!---
